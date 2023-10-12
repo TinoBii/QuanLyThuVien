@@ -44,6 +44,7 @@ Thời gian phục vụ: từ 7h00 – 18h00 các ngày trong tuần, kể cả 
 Đây là địa điểm được nhiều gia đình có con nhỏ đến vui chơi. Các bé có thể cho cừu hay dê con ăn lá cây qua khe hở của hàng rào.
 Trong Thảo Cầm Viên có những con tê giác trong rất dũng mãnh.
 Trong những ngày thứ 7 và chủ nhật (từ 9h30 – 10h00) và các ngày lễ tết (10h00 – 10h30) vườn thiếu nhi sẽ mở cửa miễn phí cho các bé vào vui chơi. Tại đây các cháu bé có thể vuốt ve những con vật hiền lành như dê, cừu.
+
 <img src="https://phuotdi.vn/wp-content/uploads/2020/01/dong-vat-thao-cam-vien.jpg">
 
 4. Quan Sát Những Con Thú Dữ.
