@@ -53,6 +53,9 @@ Trong những ngày thứ 7 và chủ nhật (từ 9h30 – 10h00) và các ngà
 Lúc 15h00, tại khu chuồng nuôi thú dữ như Sư Tử, Hổ Đông Dương và hổ Trắng Bengal, khi thăm quan sở thú, bạn có thể nhìn những con thú dữ được cho ăn. Thức ăn cho thú dữ sẽ được nhân viên cho cột treo lên cao, để chúng có thể duy trì tập tính xưa, giúp cơ thể thú dữ có thể linh hoạt, hoạt động thường xuyên để giúp tăng cường thể lực.
 
 5. Xem biểu diễn Văn Nghệ.
+   
+<img src="https://image.phunuonline.com.vn/fckeditor/upload/2020/20200719/images/trinh-dien-nghe-thuat-hat-_11595139498.jpg">
+
 Tại Thảo Cầm Viên có chương trình biểu diễn văn nghệ miễn phí.
 Xem voi biểu diễn: Khi đến sở thú vào ngày cuối tuần (thứ 7 và Cn, ngày lễ từ 9h00 – 9h30) bạn sẽ được thưởng thức màn trình diễn độc đáo
 Chương trình ca nhạc: Nhiều du khách khá thích thú với chương trình ca nhạc, ảo thuật, biểu diễn tại sân khấu chính của Thảo Cầm Viên vào thứ 7 và Cn lúc 10h00 – 12h00. Riêng chủ nhật có thêm buổi biểu diễn vào lúc chiều 16h00 – 18h00.
