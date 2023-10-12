@@ -30,7 +30,7 @@ Sở Thú đang ngày một phát triển hơn, du khách đến đây không ch
 
 1. Du ngoạn bằng xe lửa, xe điện.
 
-<img src="https://www.google.com/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2FPVu4DvmDUQM%2Fmaxresdefault.jpg&tbnid=OhqfD1Bcb9KbmM&vet=12ahUKEwigppubm_CBAxWvXvUHHQ27BWcQMygAegQIARBQ..i&imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DPVu4DvmDUQM&docid=g5VshEqp5W5B1M&w=1280&h=720&q=xe%20lua%20dien%20thao%20cam%20vien&ved=2ahUKEwigppubm_CBAxWvXvUHHQ27BWcQMygAegQIARBQ">
+<img src="https://i.ytimg.com/vi/PVu4DvmDUQM/maxresdefault.jpg">
 
 Hình ảnh: đạp vịt tại sở Thú.
 Du khách có thể mua vé để đi xe lửa thăm quan toàn cảnh của Thảo Cần Viên, vé được bán tại cổng với giá cả phải chăng.
