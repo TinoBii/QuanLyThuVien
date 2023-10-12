@@ -25,7 +25,7 @@ Với khách là đoàn học sinh, sinh viên tham quan Thảo Cầm Viên liê
 
 Theo thống kê năm 2019, Thảo Cầm Viên đang chăm sóc, bảo tồn hơn 1000 cá thể động vật, và hơn 2000 cây và hoa trong khuôn viên. Là khu bảo tồn lâu đời nhất ở Việt Nam, mỗi năm có trên 2 triệu du khách đến thăm quan. Với nhiều cây xanh, bóng mát, sở thú đã trở thành địa điểm nghỉ dưỡng của nhiều người dân khu vực tp Hồ Chí Minh và lân cận.
 
-<img src="https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-0.jpg](https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-5.jpg">
+<img src="https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-5.jpg">
 
 Hình ảnh: cây nắp ấm đang bảo tồn tại Thảo Cầm Viên.
 
@@ -45,19 +45,17 @@ Thời gian phục vụ: từ 7h00 – 18h00 các ngày trong tuần, kể cả 
 
 3. Vườn thú thiếu nhi
 
-thảo cầm viên 4
+<img src="https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-4.jpg">
 
 Đây là địa điểm được nhiều gia đình có con nhỏ đến vui chơi. Các bé có thể cho cừu hay dê con ăn lá cây qua khe hở của hàng rào.
 
 Trong Thảo Cầm Viên có những con tê giác trong rất dũng mãnh.
 
-thảo cầm viên 3
-
 Trong những ngày thứ 7 và chủ nhật (từ 9h30 – 10h00) và các ngày lễ tết (10h00 – 10h30) vườn thiếu nhi sẽ mở cửa miễn phí cho các bé vào vui chơi. Tại đây các cháu bé có thể vuốt ve những con vật hiền lành như dê, cừu.
 
 4. Quan Sát Những Con Thú Dữ.
 
-thảo cầm viên 1
+<img src="https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-1.jpg">
 
 Lúc 15h00, tại khu chuồng nuôi thú dữ như Sư Tử, Hổ Đông Dương và hổ Trắng Bengal, khi thăm quan sở thú, bạn có thể nhìn những con thú dữ được cho ăn. Thức ăn cho thú dữ sẽ được nhân viên cho cột treo lên cao, để chúng có thể duy trì tập tính xưa, giúp cơ thể thú dữ có thể linh hoạt, hoạt động thường xuyên để giúp tăng cường thể lực.
 
