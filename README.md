@@ -15,9 +15,6 @@ Thời gian mở cửa: từ thứ 2 đến chủ nhật và các ngày lễ the
 Từ 7h00 – 18h30 mở cửa cho khách thăm quan.
 
 Giá vé vào cửa Thảo Cầm Viên.
-
-thảo cầm viên 2
-
 Trẻ em cao dưới 1m: miễn phí, trẻ cao từ 1m – 1m3: 30k.
 Người lớn và trẻ cao từ 1m3 trở lên giá vé 50k.
 Với khách đi theo đoàn tour có hướng dẫn viên thuyết minh (10 – 20 khách/đoàn giá 100k/1 lần dẫn).
@@ -33,34 +30,28 @@ Sở Thú đang ngày một phát triển hơn, du khách đến đây không ch
 
 1. Du ngoạn bằng xe lửa, xe điện.
 
-thảo cầm viên 6
+<img src="https://www.google.com/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2FPVu4DvmDUQM%2Fmaxresdefault.jpg&tbnid=OhqfD1Bcb9KbmM&vet=12ahUKEwigppubm_CBAxWvXvUHHQ27BWcQMygAegQIARBQ..i&imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DPVu4DvmDUQM&docid=g5VshEqp5W5B1M&w=1280&h=720&q=xe%20lua%20dien%20thao%20cam%20vien&ved=2ahUKEwigppubm_CBAxWvXvUHHQ27BWcQMygAegQIARBQ">
 
 Hình ảnh: đạp vịt tại sở Thú.
-
 Du khách có thể mua vé để đi xe lửa thăm quan toàn cảnh của Thảo Cần Viên, vé được bán tại cổng với giá cả phải chăng.
-
 Khu vui chơi giải trí.
 Hiện Sở Thú Sài Gòn còn có những trò chơi dành cho mọi lứa tuổi tại khu vực gần cổng Nguyễn Thị Minh Khai.
 Thời gian phục vụ: từ 7h00 – 18h00 các ngày trong tuần, kể cả thứ 7 và chủ nhật và ngày lễ, tết.
 
 3. Vườn thú thiếu nhi
-
 <img src="https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-4.jpg">
 
 Đây là địa điểm được nhiều gia đình có con nhỏ đến vui chơi. Các bé có thể cho cừu hay dê con ăn lá cây qua khe hở của hàng rào.
-
 Trong Thảo Cầm Viên có những con tê giác trong rất dũng mãnh.
-
 Trong những ngày thứ 7 và chủ nhật (từ 9h30 – 10h00) và các ngày lễ tết (10h00 – 10h30) vườn thiếu nhi sẽ mở cửa miễn phí cho các bé vào vui chơi. Tại đây các cháu bé có thể vuốt ve những con vật hiền lành như dê, cừu.
+<img src="https://phuotdi.vn/wp-content/uploads/2020/01/dong-vat-thao-cam-vien.jpg">
 
 4. Quan Sát Những Con Thú Dữ.
-
 <img src="https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-1.jpg">
 
 Lúc 15h00, tại khu chuồng nuôi thú dữ như Sư Tử, Hổ Đông Dương và hổ Trắng Bengal, khi thăm quan sở thú, bạn có thể nhìn những con thú dữ được cho ăn. Thức ăn cho thú dữ sẽ được nhân viên cho cột treo lên cao, để chúng có thể duy trì tập tính xưa, giúp cơ thể thú dữ có thể linh hoạt, hoạt động thường xuyên để giúp tăng cường thể lực.
 
 5. Xem biểu diễn Văn Nghệ.
 Tại Thảo Cầm Viên có chương trình biểu diễn văn nghệ miễn phí.
-
 Xem voi biểu diễn: Khi đến sở thú vào ngày cuối tuần (thứ 7 và Cn, ngày lễ từ 9h00 – 9h30) bạn sẽ được thưởng thức màn trình diễn độc đáo
 Chương trình ca nhạc: Nhiều du khách khá thích thú với chương trình ca nhạc, ảo thuật, biểu diễn tại sân khấu chính của Thảo Cầm Viên vào thứ 7 và Cn lúc 10h00 – 12h00. Riêng chủ nhật có thêm buổi biểu diễn vào lúc chiều 16h00 – 18h00.
