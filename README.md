@@ -7,4 +7,4 @@ Năm 1924, trên diện tích được mở rộng thêm 10ha, người Pháp ch
 
 Đến năm 1989, chuồng trại ở Thảo Cầm Viên được cải tạo trên diện tích là 21.352m2 và được mở rộng đối với từng loại thú. Đến năm 1990, Thảo Cầm Viên trở thành viên chính thức của Hiệp hội các vườn của Đông Nam Á. Hiện nay, Thảo Cầm Viên đã có 590 đầu thú của 125 loài, 1.800 cây gỗ thuộc 260 loài; 23 loài lan nội địa; 33 loài xương rồng, 34 loài bonsai và cỏ xanh,..vvv.. Thảo Cần Viên trở thành điểm du lịch hấp dẫn của du khách đến thăm quan.
 
-<img 
+<img src="https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-0.jpg">
