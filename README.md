@@ -25,7 +25,7 @@ Với khách là đoàn học sinh, sinh viên tham quan Thảo Cầm Viên liê
 
 Theo thống kê năm 2019, Thảo Cầm Viên đang chăm sóc, bảo tồn hơn 1000 cá thể động vật, và hơn 2000 cây và hoa trong khuôn viên. Là khu bảo tồn lâu đời nhất ở Việt Nam, mỗi năm có trên 2 triệu du khách đến thăm quan. Với nhiều cây xanh, bóng mát, sở thú đã trở thành địa điểm nghỉ dưỡng của nhiều người dân khu vực tp Hồ Chí Minh và lân cận.
 
-<img src="[https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-0.jpg](https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-5.jpg)">
+<img src="https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-0.jpg](https://dulichviet.net.vn/wp-content/uploads/2019/04/thao-cam-vien-5.jpg">
 
 Hình ảnh: cây nắp ấm đang bảo tồn tại Thảo Cầm Viên.
 
